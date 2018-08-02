@@ -50,6 +50,26 @@
 * 网址链接：http://guanghuan.mikecrm.com/8FRHifb 
 
 
+#### 11、第十一章  项目风险管理
+* 网址链接：http://guanghuan.mikecrm.com/PsQRGBA
+
+
+#### 12、第十二章 项目采购管理 
+* 网址链接：http://guanghuan.mikecrm.com/uMEvkxk 
+
+
+#### 13、第十三章  项目合同管理
+* 网址链接：http://guanghuan.mikecrm.com/sfhQ0Eu 
+
+
+#### 14、第十四章 信息文档管理和配置管理  
+* 网址链接：http://guanghuan.mikecrm.com/IJfGoNw 
+
+
+#### 15、第十五章 知识管理
+* 网址链接：http://guanghuan.mikecrm.com/JhhnarH 
+
+
 
 
 > 链接及其内容来自《光环国际》，侵删。
