@@ -70,6 +70,58 @@
 * 网址链接：http://guanghuan.mikecrm.com/JhhnarH 
 
 
+#### 16、第十六章 项目变更管理
+* 网址链接：http://guanghuan.mikecrm.com/3c8dGy7 
+
+
+#### 17、第十七章 战略管理
+* 网址链接：http://guanghuan.mikecrm.com/YCuIHUH 
+
+
+#### 18、第十八章 组织级项目管理
+* 网址链接：http://guanghuan.mikecrm.com/2WzUbyw 
+
+
+#### 19、第十九章 流程管理
+* 网址链接：http://guanghuan.mikecrm.com/1r3h2gH 
+
+
+#### 20、第二十章 项目集管理
+* 网址链接：http://guanghuan.mikecrm.com/sQ81jnz 
+
+
+#### 21、第二十一章 项目组合管理
+* 网址链接：http://guanghuan.mikecrm.com/l73UqrV 
+
+
+#### 22、第二十二章 信息系统安全管理
+* 网址链接：http://guanghuan.mikecrm.com/G8XyvCJ 
+
+
+#### 23、第二十三章 信息系统综合测试与管理
+* 网址链接：http://guanghuan.mikecrm.com/9AcJICi 
+
+
+#### 24、第二十四章 项目管理成熟度模型
+* 网址链接：http://guanghuan.mikecrm.com/veqzQl5 
+
+
+#### 25、第二十五章 量化的项目管理
+* 网址链接：http://guanghuan.mikecrm.com/AVUR2f0 
+
+
+#### 26、第二十六章 知识产权与标准规范
+* 网址链接：http://guanghuan.mikecrm.com/Nru1mFu 
+
+
+#### 27、第二十七章 管理科学基础知识
+* 网址链接：http://guanghuan.mikecrm.com/l1285N0
+
+
+#### 28、第二十八章 英语集锦
+* 网址链接：http://guanghuan.mikecrm.com/6ypQlLn 
+
+
 
 
 > 链接及其内容来自《光环国际》，侵删。
