@@ -5,8 +5,8 @@
 #### _第三版教材_
 
 
-#### 1、第一章信息化和信息系统 *
-* 网址链接：http://guanghuan.mikecrm.com/ZZnBCYI  
+#### * 1、第一章信息化和信息系统 *
+网址链接：http://guanghuan.mikecrm.com/ZZnBCYI  
 ###### _选择题重点_
 
 
